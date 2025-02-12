@@ -4,6 +4,8 @@
     三正 & 一正兩反 -> 陽卦 ￣
     三反 & 兩正一反 -> 陰卦 - -
     由下而上記錄6次結果
+	https://www.youtube.com/watch?v=Z85sir7ZpAI
+	
 
 01_六十四卦(找掛) ~ https://zh.wikipedia.org/zh-tw/%E5%85%AD%E2%BC%97%E5%9B%9B%E5%8D%A64
 
