@@ -32,3 +32,4 @@
 
 02_六十四卦卦義 ~ https://www.eee-learning.com/article/2076
 https://www.myfate.biz/typography/i-ching-divination/i-ching-first-level/1658-1.html
+https://www.scribd.com/document/750543103/%E6%98%93%E7%BB%8F%E5%85%A8%E6%96%87%E5%8F%8A%E7%99%BD%E8%AF%9D%E7%BF%BB%E8%AF%91-%E5%AE%8C%E6%95%B4%E7%89%88
